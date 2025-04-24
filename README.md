@@ -1,3 +1,3 @@
 read my [patreon](https://www.patreon.com/justdem4n/about) page before interacting!
 
-![gif2](https://github.com/user-attachments/assets/f06bf26a-e58b-44f4-90c4-93a2d0713994)
+![mohawkmark](https://github.com/user-attachments/assets/062d4702-8272-43c3-ac93-5e0eb0cb12ee)
