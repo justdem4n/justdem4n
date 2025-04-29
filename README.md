@@ -4,4 +4,6 @@ if you spot me in a tree im either just trying to avoid getting my skin stolen a
 
 ![movincihawk](https://github.com/user-attachments/assets/e9626678-badd-414e-9933-6798ab905a2e)
 
-do not copy, reference or take inspiration from my skins (this includes my coloring, shading and/or style).
+do not copy, reference or take inspiration from my skins (this includes my coloring, shading and/or style).ù
+
+![](https://komarev.com/ghpvc/?username=justDem4n&color=396675)
