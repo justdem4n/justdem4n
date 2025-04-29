@@ -1,4 +1,4 @@
-read my [patreon](https://www.patreon.com/justdem4n/about) page before interacting (oviously this wouldnt count if i do first, but make sure to take a look when possible).
+read my [patreon](https://www.patreon.com/justdem4n/about) page before interacting!
 
 if you spot me in a tree im either just trying to avoid getting my skin stolen again or im hiding from crowded areas.
 
