@@ -6,4 +6,4 @@ if you spot me in a tree im either just trying to avoid getting my skin stolen a
 
 do not copy, reference or take inspiration from my skins (this includes my coloring, shading and/or style).
 
-![](https://komarev.com/ghpvc/?username=justDem4n&color=396675)
+![](https://komarev.com/ghpvc/?username=justDem4n&color=60bac2&label=views&style=flat-square)
