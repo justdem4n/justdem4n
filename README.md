@@ -7,4 +7,4 @@ do not copy, reference or take inspiration from my skins (this includes my color
 
 if you spot me in a tree im either just hiding from getting my skin stolen again and/or avoiding crowded areas.
 
- ![](https://komarev.com/ghpvc/?username=justdem4n&color=60bac2&label=views&style=flat-square)
+![](https://komarev.com/ghpvc/?username=justdem4n&color=60bac2&label=views&style=flat-square)
