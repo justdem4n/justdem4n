@@ -1,4 +1,5 @@
 if you see this, read my [patreon](https://www.patreon.com/justdem4n/about) 'about' section before interacting!
+and if you are a minor, do not interact at all.
 
 do not copy, reference or take inspiration from my skins (this includes my coloring, shading and/or style).
 
