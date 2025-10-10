@@ -4,6 +4,6 @@ if you see this, read my [patreon](https://www.patreon.com/justdem4n/about) 'abo
 
 if you spot me in a tree im either just hiding from getting my skin stolen again and/or avoiding crowded areas.
 
-<img width="1919" height="807" alt="banner2" src="https://github.com/user-attachments/assets/8ebdcfb5-a67a-4e39-b09d-cad8234fabbd" />
+<img width="1919" height="809" alt="banner5" src="https://github.com/user-attachments/assets/64f5008d-c160-4a56-9d64-e82395379f28" />
 
 ![](https://komarev.com/ghpvc/?username=justdem4n&color=60bac2&label=views&style=flat-square)
