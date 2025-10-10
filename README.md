@@ -1,11 +1,9 @@
-if you see this, read my [patreon](https://www.patreon.com/justdem4n/about) 'about' section before interacting!
-and if you are a minor, do not interact at all.
-
 do not copy, reference or take inspiration from my skins (this includes my coloring, shading and/or style).
 
-![banner](https://github.com/user-attachments/assets/c04631dc-0d8f-4fff-9926-e1c3a2fc2469)
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cv47s2vkl7asmscfa4yne2fw5m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+if you see this, read my [patreon](https://www.patreon.com/justdem4n/about) 'about' section before interacting!
 
 if you spot me in a tree im either just hiding from getting my skin stolen again and/or avoiding crowded areas.
+
+<img width="1919" height="807" alt="banner2" src="https://github.com/user-attachments/assets/8ebdcfb5-a67a-4e39-b09d-cad8234fabbd" />
 
 ![](https://komarev.com/ghpvc/?username=justdem4n&color=60bac2&label=views&style=flat-square)
