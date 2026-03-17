@@ -21,5 +21,3 @@ the use of hate speech (*this includes slurs*), discriminatory language and any 
 
 
 <img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/acc4009b-5292-4ab4-9165-3f9bbb25d200" />
-
-check my [patreon](https://www.patreon.com/justdem4n) page for callouts.
