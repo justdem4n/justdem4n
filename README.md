@@ -2,7 +2,7 @@
 
 avoid drama and/or trauma dumping, discussing about sensitive topics and/or making edgy jokes around me especially if i dont know you.
 
-do not copy, reference or take inspiration from my skins (*this includes my coloring, shading and/or style*).
+do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
 i dont immediately accept friend requests from people i barely know. but if we hang out more ill make sure to add you back.
 
