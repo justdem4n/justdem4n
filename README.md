@@ -1,6 +1,6 @@
 ### **before you interact**:
 
-avoid drama and/or trauma dumping, discussing about sensitive topics and/or making edgy jokes around me especially if i dont know you.
+avoid discussing about sensitive topics, making edgy jokes around me, trauma dumping and/or venting, especially if i dont know you.
 
 do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
