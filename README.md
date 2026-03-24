@@ -18,6 +18,4 @@ the use of hate speech (*this includes slurs*), discriminatory language and any 
 
 ## **do not also interact if you defend**, **justify or minimize any of the above**. **whether using fiction as an excuse or not**.
 
-
-
-<img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/acc4009b-5292-4ab4-9165-3f9bbb25d200" />
+<img width="1563" height="879" alt="github" src="https://github.com/user-attachments/assets/13c8b017-5105-4d57-86cf-fc51e1817b33" />
