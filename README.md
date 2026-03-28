@@ -12,7 +12,7 @@ if theres something wrong, please whisper or private message me instead of discu
 
 dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
 
-bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a ship and/or a character who has done wrong (*people can enjoy complex characters without agreeing to their actions*).
+bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a character who has done wrong (*people can enjoy complex characters without agreeing to their actions*).
 
 the use of hate speech (*this includes slurs*), discriminatory language and any type of bigotry.
 
