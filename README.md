@@ -4,18 +4,20 @@ avoid discussing about sensitive topics, making edgy jokes around me, trauma dum
 
 do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
+i block freely, do not come after me because of that. this is the internet and i am allowed to do so.
+
 i dont immediately accept friend requests from people i barely know. but if we hang out more ill make sure to add you back.
 
-if theres something wrong, please whisper or private message me instead of discussing about it in public and/or making it everyones problem. im not into drama and involving other people in our issues.
+if theres something wrong, please whisper or private message me instead of discussing about it in public and/or making it everyones problem. im not into drama and/or involving other people in our issues.
 
 ### **do not interact if you condone in**:
 
 dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
 
-bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a character who has done wrong (*people can enjoy complex characters without agreeing to their actions*).
+bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a character and/or a legal noncanon ship.
 
-the use of hate speech (*this includes slurs*), discriminatory language and any type of bigotry.
+the use of discriminatory language, hate speech (*this includes slurs*) and/or any type of bigotry.
 
-## **do not also interact if you defend**, **justify or minimize any of the above**. **whether using fiction as an excuse or not**.
+## **do not also interact if you defend**, **justify and/or minimize any of the above**. **whether using fiction as an excuse or not**.
 
 <img width="1563" height="879" alt="github" src="https://github.com/user-attachments/assets/13c8b017-5105-4d57-86cf-fc51e1817b33" />
