@@ -16,7 +16,7 @@ bullying, harassment, shaming and toxic behavior. attacking someone for enjoying
 
 dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
 
-mischaracterizing already complex and/or nonproblematic characters by giving them bigoted and/or predatory headcanons.
+mischaracterizing characters by giving them bigoted and/or predatory headcanons.
 
 the use of discriminatory language, hate speech (*this includes slurs*) and/or any type of bigotry.
 
