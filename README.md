@@ -6,15 +6,17 @@ do not copy, reference or take inspiration from my skins (*this includes my colo
 
 i block freely, do not come after me because of that. this is the internet and i am allowed to do so.
 
-i dont immediately accept friend requests from people i barely know. if we hang out more ill make sure to add you back.
+i dont immediately accept friend requests from people i barely know but if we hang out more ill make sure to add you back.
 
 if theres something wrong, please whisper or private message me instead of discussing about it in public and/or making it everyones problem. im not into drama and/or involving other people in our issues.
 
 ### **do not interact if you condone in**:
 
+bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a complex character and/or a legal noncanon ship.
+
 dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
 
-bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a character and/or a legal noncanon ship.
+mischaracterizing already complex and/or nonproblematic characters by giving them bigoted and/or predatory headcanons.
 
 the use of discriminatory language, hate speech (*this includes slurs*) and/or any type of bigotry.
 
