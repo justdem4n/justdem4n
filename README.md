@@ -4,7 +4,7 @@ avoid discussing about sensitive topics, making edgy jokes around me, trauma dum
 
 do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
-i block freely, do not come after me because of that. this is the internet and i am allowed to do so.
+i block freely.
 
 i dont immediately accept friend requests from people i barely know but if we hang out more ill make sure to add you back.
 
@@ -12,13 +12,13 @@ if theres something wrong, whisper or private message me instead of discussing a
 
 ### **do not interact if you condone in**:
 
-bullying, harassment, shaming and toxic behavior.
-
-dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
+bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a character and/or a legal noncanon ship.
 
 interacting with adults as a minor in the 18+ server and viceversa.
 
 mischaracterizing complex characters by giving them bigoted and/or predatory headcanons.
+
+proshipping, pedophilia and zoophilia. sexualization of animals, anthropomorphic creatures and minors. fetishizing and/or normalizing dark romance in relationships with or without harmful power dynamics.
 
 the use of discriminatory language, hate speech (*this includes slurs*) and/or any type of bigotry.
 
