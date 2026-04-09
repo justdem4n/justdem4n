@@ -20,7 +20,7 @@ interacting with adults as a minor in the 18+ server and viceversa.
 
 mischaracterizing complex characters by giving them bigoted and/or predatory headcanons.
 
-proshipping, pedophilia and zoophilia. sexualization of animals, anthropomorphic creatures and minors. fetishizing and/or normalizing dark romance in relationships with or without harmful power dynamics.
+proshipping, pedophilia and/or zoophilia. sexualization of animals, anthropomorphic creatures and/or minors. fetishizing and/or normalizing dark romance in relationships with or without harmful power dynamics.
 
 the use of discriminatory language, hate speech (*this includes slurs*) and/or any type of bigotry.
 
