@@ -12,7 +12,7 @@ if theres something wrong, whisper or private message me instead of discussing a
 
 ### **do not interact if you condone in**:
 
-bullying, harassment, shaming and toxic behavior. attacking someone for enjoying a complex character and/or a legal noncanon ship.
+bullying, harassment, shaming and toxic behavior.
 
 dark/proshipping, pedophilia and sexualization of minors. fetishizing and/or normalizing 'dark romance' in relationships with or without harmful power dynamics.
 
