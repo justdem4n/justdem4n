@@ -4,7 +4,9 @@ avoid discussing about sensitive topics, making edgy jokes around me, trauma dum
 
 do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
-i block freely.
+i am multishipper but i do have my own dislikes and preferences.
+
+i block freely, do not come after me because of that. this is the internet and i am allowed to do so.
 
 i dont immediately accept friend requests from people i barely know but if we hang out more ill make sure to add you back.
 
