@@ -4,7 +4,7 @@ avoid discussing about sensitive topics, making edgy jokes around me, trauma dum
 
 do not copy, reference or take inspiration from my skins (*this includes my coloring*, *shading and*/*or style*).
 
-i am multishipper but i do have my own dislikes and preferences.
+i am a multishipper but i do have my own dislikes and preferences.
 
 i block freely, do not come after me because of that. this is the internet and i am allowed to do so.
 
